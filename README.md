@@ -11,7 +11,7 @@ We tested top brands based on potency, flavor diversity, innovation, and user fe
 
 🏆 Top 5 Best Kratom Seltzers 2025 at a Glance
 
-1	White Rabbit Energy	45mg	10+	Nano-encapsulation for fast effects
+1	[White Rabbit Energy]([https://pages.github.com/](https://whiterabbitenergy.com/))	45mg	10+	Nano-encapsulation for fast effects
 
 2	Club13 Herbals 75 MIT Seltzer	75mg	7	Highest potency, lab-tested
 
